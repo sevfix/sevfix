@@ -4,6 +4,8 @@ i am an average **he/him** pronouns enjoyer and i prefer masculine terms. as a f
 
 this page is solely for **linking my socials** which you can visit if youre interested! im an **unprofessional digital artist** so feel free to support me 
 
+my **extended** [dni](https://listography.com/sevantastic) & [int](https://listography.com/sevantastic?f=O) list
+
 ┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉┉
 
 ***interactive sites***
